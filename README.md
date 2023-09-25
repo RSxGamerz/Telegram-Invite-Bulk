@@ -1,10 +1,10 @@
 
 # Telegram-TgSender Contact | Group Bulk Send |Invite  
 
-telegram: https://t.me/IonicSupport
-whatsapp:+1 315 629 9582
+Telegram: https://t.me/CYBER_ST0RES
+whatsapp: https://wa.me/+15303345449
 
-# BUY HERE  <a href='Telegram: https://telegram.me/CYBER_ST0RES' target='_blank'>https://telegram.me/CYBER_ST0RES</a> <a href='WhatsApp: https://wa.me/+15303345449' target='_blank'>https://wa.me/+15303345449</a>
+# GET HERE  <a href='https://t.ly/rIEVL' target='_blank'>https://t.ly/rIEVL</a>
 
 <p><strong>Telegram-TgSender Contact | Group Bulk Send |Invite</strong>-Support <strong>multiple accounts</strong> to work at the same time!(Maximum 100 accounts)</P>
 <p><strong>Telegram-TgSender Contact | Group Bulk Send |Invite</strong>-Support one-click login to multiple accounts(Maximum 100 accounts)</P>
