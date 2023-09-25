@@ -1,7 +1,7 @@
 
 # Telegram-TgSender Contact | Group Bulk Send |Invite  
 
-Telegram: https://t.me/CYBER_ST0RES
+telegram: https://t.me/CYBER_ST0RES
 whatsapp: https://wa.me/+15303345449
 
 # GET HERE  <a href='https://t.ly/rIEVL' target='_blank'>https://t.ly/rIEVL</a>
